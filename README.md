@@ -10,4 +10,4 @@
 - Jennifer Díaz
 - Alexis Fernández
 
-*Generation Chile 
+*Generation Chile* 
