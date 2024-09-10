@@ -10,4 +10,4 @@
 - Jennifer Díaz
 - Alexis Fernández
 
-*Generation Chile madafackaaa*
+*Generation Chile 
